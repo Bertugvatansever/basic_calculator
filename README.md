@@ -3,4 +3,5 @@
 
 
 
-![screenshot](https://github.com/user-attachments/assets/a7f84680-6ba0-4252-ae08-eccde8263bdc)
+
+![Adsız](https://github.com/user-attachments/assets/3cb5edba-ce6b-4afa-91b5-f05b48089586)
